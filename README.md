@@ -7,4 +7,4 @@
 -  Ask me about anything you want im always online
 -  You can contact me at arnodian.insnet@gmail.com
 -  Have a good day and thanks for checking in 
-![alt text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS9UZt1weDbuM6FwTuegJlHc-RKkYXLvQhnXQ&usqp=CAU)
+
