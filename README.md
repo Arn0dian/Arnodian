@@ -1,4 +1,4 @@
-### Hi there ; how are you ? 👋
+### Hi there ; Wassup?
 
 
 -  I am an Amateur Astronomer and Computer Enthusiast  ; currently pursuing my Btech Hons. in Computer Science and Engineering from Xavier University BBSR. 
